@@ -1,2 +1,0 @@
-# valerialuna.github.io
-drafting
